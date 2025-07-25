@@ -14,3 +14,4 @@ Lolo rió.
 —¡Es mi zapato favorito!
 Don Ernesto le devolvió el zapato con mucho cuidado. Y desde ese día, Lolo les puso su nombre a sus cosas: "Zapato izquierdo: Lolo. Zapato derecho: ¡también Lolo!"
 Por si volvían a irse de aventura… sin él
+Y aunque nunca más perdió sus zapatitos, de vez en cuando encontraba una bellota o una hoja en su interior. Don Ernesto seguía confundido, pero Lolo ya no se enojaba. Al contrario, guardaba cada regalito en una caja especial con una etiqueta que decía: “Tesoros de aventuras accidentales”.
