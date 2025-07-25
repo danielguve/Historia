@@ -41,3 +41,5 @@ Los demás animalitos le traen migas y café. Él les cuenta su historia.
 Y al final del día, sonríe, se acomoda en un banco y susurra:
 
 —Al menos tengo mis zapatos… aunque estén rotos, siguen conmigo.
+
+Y mientras el sol se esconde entre las hojas altas del bosque, Lolo cierra los ojos y siente la tierra tibia bajo sus patas. Ya no necesita que todo esté en orden, ni que sus zapatos estén impecables. Ha entendido que la vida —como un zapato travieso— a veces se pierde, se rompe, se llena de nueces o de amor, pero siempre encuentra el camino de regreso… aunque sea con una suela parchada y el corazón remendado.
